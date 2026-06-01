@@ -11,8 +11,8 @@
 1. 磁力树最新网址1： [点击访问](https://kancili.xyz)
 2. 磁力树最新网址2： [点击访问](https://mocili.xyz)
 3. 地址发布页： [点击访问](https://shucili.vip)
-4. 备用发布页1： [点击访问](https://btdizhi.github.io/sdz/)
-5. 备用发布页2： [点击访问](https://bitbucket.org/btdizhi/1/src/main/)
+4. 备用地址发布页1： [点击访问](https://btdizhi.github.io/sdz/)
+5. 备用地址发布页2： [点击访问](https://bitbucket.org/btdizhi/1/src/main/)
 
 ## ⚠️ 注意事项
 
