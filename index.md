@@ -1,17 +1,18 @@
 # 🌟 重要公告
 
-💡 **请务必收藏本发布页**
+💡 **请务必收藏磁力树发布页**
 
 - Windows用户：按键盘 CTRL+D 收藏
 - Mac用户：按键盘 ⌘ + D 收藏
 - 手机平板用户：点击浏览器菜单添加收藏
 
-## 🔗 可用链接（选择"新标签页打开"）
+## 🔗 磁力树可用链接（选择"新标签页打开"）
 
-1. 最新网址： [点击访问](https://cili1.aizhongzi.top/)
-2. 永久发布页： [点击访问](https://haicili.vip)
-3. 备用发布页1： [点击访问](https://haicili.vip)
-4. 备用发布页2： [点击访问](https://haicili.vip)
+1. 磁力树最新网址1： [点击访问](https://kancili.xyz)
+2. 磁力树最新网址2： [点击访问](https://mocili.xyz)
+3. 地址发布页： [点击访问](https://shucili.vip)
+4. 备用发布页1： [点击访问](https://btdizhi.github.io/sdz/)
+5. 备用发布页2： [点击访问](https://bitbucket.org/btdizhi/1/src/main/)
 
 ## ⚠️ 注意事项
 
